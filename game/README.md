@@ -1,1 +1,0 @@
-Pictures in the folder
